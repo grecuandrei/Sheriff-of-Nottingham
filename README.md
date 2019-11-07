@@ -1,4 +1,4 @@
-				                           Copyright @ 2019 Grecu Andrei-George, All rights reserved
+				   Copyright @ 2019 Grecu Andrei-George, All rights reserved
                                     ██████████                                    ██████████                                    
                                   ██████████    ░░                                  ██████████                                  
                   ░░              ██████████  ████████                    ████████  ██████████                                  
